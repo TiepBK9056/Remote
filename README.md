@@ -1,2 +1,2 @@
-tiep ngu nhu heo
+tiep ngu như bo
 ádfasdf
